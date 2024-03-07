@@ -1,4 +1,4 @@
-✴♡🌐👩🏻‍💻👾* ੈ✩ ༘⚛ \n
+✴♡🌐👩🏻‍💻👾* ੈ✩ ༘⚛ 
 Hi my name is Brittany!
 I'm an aspiring Data Scientist and this is my github. 
 My pronouns are she/her. 
